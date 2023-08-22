@@ -1,8 +1,8 @@
 # ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵឵឵឵ATTACK TEAM 💪🏻 ( [ATTACK](https://discord.gg/Eu2UeveE2t) ) ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵឵឵឵
 
 # Just1N#0057 -> ( [Just1N Github](https://github.com/just1nwashere) )
-➥ İçine Kapanık, Kendi Hallinde Takılan, Bot Mod Kod Yapanımdır.
 <img src="https://camo.githubusercontent.com/955ff6953a925197420e7bb55a39734af3b479d8ba6d989c72f35797a32f8037/68747470733a2f2f6c616e796172642d70726f66696c652d726561646d652e76657263656c2e6170702f6170692f3834353232333133353131313534343833323f686964654469736372696d3d74727565" alt="Discord Presence" data-canonical-src="https://lanyard-profile-readme.vercel.app/api/845223135111544832?hideDiscrim=true" style="max-width: 100%;">
+➥ İçine Kapanık, Kendi Hallinde Takılan, Bot Mod Kod Yapanımdır.
 
 
 # MertBey#0001 -> ( [MertBey Discord](https://discord.com/users/1137804126877651105) )
