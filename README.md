@@ -5,7 +5,6 @@
 ![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/a9555f3d-235f-4459-a0f7-17d3be242923)
 
 
-
 # MertBey#0001 -> ( [MertBey Discord](https://discord.com/users/1137804126877651105) )
 ➥ Hazır Altyapı Alıp Editleyen Biri, Bende Diyom Bu Uptime Botu Kendimi Yaptı Diye XD, Ama Bazen Çok İyi Yapıyor Cidden.
 ![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/5ff9dac0-4df4-40cd-9e67-169e9cec248d)
