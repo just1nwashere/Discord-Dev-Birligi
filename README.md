@@ -1,4 +1,4 @@
-#                                  ATTACK TEAM 💪🏻 ( [ATTACK](https://discord.gg/Eu2UeveE2t) )
+# ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵឵឵឵ATTACK TEAM 💪🏻 ( [ATTACK](https://discord.gg/Eu2UeveE2t) ) ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵ ឵឵឵឵
 
 # Just1N#0057 -> ( [Just1N Github](https://github.com/just1nwashere) )
 ➥ İçine Kapanık, Kendi Hallinde Takılan, Bot Mod Kod Yapanımdır.
