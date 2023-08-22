@@ -1,4 +1,4 @@
-![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/892e3c51-c500-4b64-b582-708ba6333599)# ATTACK TEAM 💪🏻 ( [ATTACK](https://discord.gg/Eu2UeveE2t) )
+# ATTACK TEAM 💪🏻 ( [ATTACK](https://discord.gg/Eu2UeveE2t) )
 
 # Just1N#0057 -> ( [Just1N Github](https://github.com/just1nwashere) )
 ➥ İçine Kapanık, Kendi Hallinde Takılan, Bot Mod Kod Yapanımdır.
