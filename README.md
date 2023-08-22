@@ -24,3 +24,4 @@
 
 # Shcwarzenegger#9541 -> Hazırcı
 ➥ Bana Çalıntı Kod Kullanan Diye İftira Atan, Kendisi Hazır Website Kullanırken Ve Hazır Kod Kullanırken Böyle Demesi Acı Verici.
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/76fe2a16-056f-4611-bbc4-19ff4bcd98c2)
