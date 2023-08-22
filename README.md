@@ -21,7 +21,7 @@
 # EN ŞİRİN BOTÇULAR 💖
 
 # Ramazann#7750 -> ( [Ramazann Github](https://github.com/ramazannwashere) )
-![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/24015f77-3ea0-4952-b143-11d041013640)
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/cb563513-512e-4e62-9373-59fd42f40fb2)
 
 ➥ Bot Yaparken 3 Kütüphaneyle Yapan Eleman, Djs, Aoi.js, BDFD Ama İşini İyi Yapar Bazende İbinelik Yapar Şaka Şaka.
 
@@ -41,5 +41,5 @@
 # EN ASALAK BOTÇULAR 😂
 
 # Shcwarzenegger#9541 -> Hazırcı
-➥ Bana Çalıntı Kod Kullanan Diye İftira Atan, Kendisi Hazır Website Kullanırken Ve Hazır Kod Kullanırken Böyle Demesi Acı Verici.
 ![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/76fe2a16-056f-4611-bbc4-19ff4bcd98c2)
+➥ Bana Çalıntı Kod Kullanan Diye İftira Atan, Kendisi Hazır Website Kullanırken Ve Hazır Kod Kullanırken Böyle Demesi Acı Verici.
