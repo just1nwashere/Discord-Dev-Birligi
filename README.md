@@ -23,7 +23,7 @@
 # Ramazann#7750 -> ( [Ramazann Github](https://github.com/ramazannwashere) )
 ![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/cb563513-512e-4e62-9373-59fd42f40fb2)
 
-➥ Bot Yaparken 3 Kütüphaneyle Yapan Eleman, Djs, Aoi.js, BDFD Ama İşini İyi Yapar Bazende İbinelik Yapar Şaka Şaka.
+➥ Bot Yaparken 3 Kütüphaneyle Yapan Eleman, Djs, Aoi.js, BDFD Ama İşini İyi Yapar Bazende İbinelik Yapar Şaka Şaka, Ama Emekli Developer.
 
 
 # ErnBey#1119 -> ( [ErnBey Youtube](https://www.youtube.com/@ErnBEY) )
