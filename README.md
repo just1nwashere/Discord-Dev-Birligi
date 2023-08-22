@@ -2,7 +2,6 @@
 
 # Just1N#0057 -> ( [Just1N Github](https://github.com/just1nwashere) )
 ➥ İçine Kapanık, Kendi Hallinde Takılan, Bot Mod Kod Yapanımdır.
-[![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/f51aa03b-68ca-4a7a-9915-c594e7fc78c6)](https://discord.com/users/845223135111544832)
 
 # MertBey#0001 -> ( [MertBey Discord](https://discord.com/users/1137804126877651105) )
 ➥ Hazır Altyapı Alıp Editleyen Biri, Bende Diyom Bu Uptime Botu Kendimi Yaptı Diye XD, Ama Bazen Çok İyi Yapıyor Cidden.
@@ -25,4 +24,3 @@
 
 # Shcwarzenegger#9541 -> Hazırcı
 ➥ Bana Çalıntı Kod Kullanan Diye İftira Atan, Kendisi Hazır Website Kullanırken Ve Hazır Kod Kullanırken Böyle Demesi Acı Verici.
-[https://media.discordapp.net/attachments/1141331148329463839/1143445371301937152/image.png](https://discord.com/users/756665592664162414)
