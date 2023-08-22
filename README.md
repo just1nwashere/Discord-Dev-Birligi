@@ -6,25 +6,35 @@
 
 
 # MertBey#0001 -> ( [MertBey Discord](https://discord.com/users/1137804126877651105) )
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/fd67cdea-6e32-4845-859d-0d6a346d4b9d)
+
 ➥ Hazır Altyapı Alıp Editleyen Biri, Bende Diyom Bu Uptime Botu Kendimi Yaptı Diye XD, Ama Bazen Çok İyi Yapıyor Cidden.
 
 
 
 # LÉVĪ_scøw#1124 -> ( [Levi Youtube](https://www.youtube.com/@Misc_VIDEO73) )
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/47d8e1a6-2b77-4f1d-9e29-17afd09ebdc3)
+
 ➥ Bu Elemanda Hazır Sw kopyalayıp Üye Çeken Biridir, Benden Sw Kopyaladı Ama İşinde 10 Numara 5 Yıldızdır.
 
 
 # EN ŞİRİN BOTÇULAR 💖
 
 # Ramazann#7750 -> ( [Ramazann Github](https://github.com/ramazannwashere) )
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/24015f77-3ea0-4952-b143-11d041013640)
+
 ➥ Bot Yaparken 3 Kütüphaneyle Yapan Eleman, Djs, Aoi.js, BDFD Ama İşini İyi Yapar Bazende İbinelik Yapar Şaka Şaka.
 
 
 # ErnBey#1119 -> ( [ErnBey Youtube](https://www.youtube.com/@ErnBEY) )
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/a56b2c8e-f262-4bfa-8b70-5ec1e9a15892)
+
 ➥ Bot Yapmaya Yeni Başlamış Birisi, Öğrencim Olur Kendileri :D, Bazen Elimden Geldiği Kadar Yardımcı Olmaya Çalışıyorum Onlara.
 
 
 # ArviS#0011 -> ( [ArviS Github](https://github.com/ArviSlayer) )
+![image](https://github.com/just1nwashere/Discord-Dev-Birligi/assets/110572436/34b45059-f9bb-4bc4-a7c9-f06897144802)
+
 ➥ Çok Soğuk kanlıdır Ama Çokta Yardımcıdır, Djs Tamamen Sökmüş Biri :D, Hocamız Olur Kendisi :D
 
 
